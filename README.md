@@ -25,4 +25,4 @@ Should I have more time, I would have liked to possibly work more on the interac
 Thanks again for all and the positive energy this term! 
 
 Korina 
-![image](https://user-images.githubusercontent.com/117037166/204148583-b4f7cbcb-f168-4e32-8e08-342b8f9f0c7f.png)
+
